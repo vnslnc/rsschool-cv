@@ -1,7 +1,7 @@
-#Levan Eradze
+# Levan Eradze
 
-##Instagram: whatever_that_hurts
-##Phone number:555289652 (incl. Telegram, Viber messengers)
+## Instagram: whatever_that_hurts
+## Phone number:555289652 (incl. Telegram, Viber messengers)
 
   ***I'm attending this course, because I want to try out how well coding would suit me as a job and lifestyle in a way. 
   As you can see, I don't have any skills. I can't show you my resumee, nor did I ever study this topic. 
