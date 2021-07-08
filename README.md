@@ -1,1 +1,1 @@
-https://vnslnc.github.io/rsschool-cv/
+https://vnslnc.github.io/rsschool-cv/cv.md
